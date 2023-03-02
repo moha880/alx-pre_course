@@ -1,1 +1,1 @@
-ay kalam
+ay kalam ya sa7by
